@@ -133,7 +133,8 @@ Initially created by [Marko Denic](https://twitter.com/denicmarko) on [Twitter](
 | https://europeremotely.com |  
 | https://wfh.io |  
 | https://4dayweek.io |
-| https://www.hiretechladies.com/ |  
+| https://www.hiretechladies.com/ | 
+| https://sportekjobs.com/remote-jobs-in-sports |
 
 [⬆ back to top](#table-of-contents)
 
