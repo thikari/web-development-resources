@@ -181,6 +181,7 @@ Initially created by [Marko Denic](https://markodenic.com) on [Twitter](https://
 | https://angel.co                |
 | https://www.smartremotejobs.com |
 | https://www.remotehub.com       |
+| [https://sportekjobs.com/remote-jobs-in-sports]
 
 [⬆ back to top](#table-of-contents)
 
